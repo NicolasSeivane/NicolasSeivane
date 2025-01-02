@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @NicolasSeivane
 - 👀 I’m interested in continuing to develop my abilities and reach a higher level of my skills
-- 🌱 I’m currently studying University Diploma in Artificial Intelligence
+- 🌱 I’m currently studying for a University Diploma in Artificial Intelligence at the University of Hurlingham, Argentina.
 - 📫 How to reach me seivanenicolas@gmail.com or miconnicolas@gmail.com
 - 😄 Pronouns: He/Him
 
